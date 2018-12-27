@@ -1,1 +1,2 @@
-quotes....IDK
+quotes...
+Get busy living or get busy dying
